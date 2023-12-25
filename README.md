@@ -1,8 +1,10 @@
 - 👋 Hi, I’m @winyap1516
 - 👀 I’m interested in ...AI Trainng
 - 🌱 I’m currently learning ...Azure and transformer to M+S Local language
-- 💞️ I’m looking to collaborate on ...Sorry Im new still dont know everything
-- 📫 How to reach me ...
+- 💞️ I’m not looking all i I can't accept your knowledge Sorry Im new still dont know everything
+- 📫 The photos you put on github last time were very sensitive, and I was just speechless.
+I'm not a good person, but I haven't influenced you. Don't invade me.
+Do you know that photo has made me unsafe?
 不要入侵我的网络  让我很不安全 我的手机更加有4张照片 你们让我感觉不安全
 谁能帮我 全部网络都那么容易入侵的
 请你不要改我的文件 我不知道能跟谁求救
